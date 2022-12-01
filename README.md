@@ -1,0 +1,2 @@
+mors philosophiae
+philosophia martis
